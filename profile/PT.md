@@ -1,6 +1,6 @@
 ![1](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/46439c7b-9a15-47fd-858f-b50bef9c48d3)
 ![2](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/8578fd92-3a15-4d45-ad3d-2142343be52d)
-![3](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/92ac4906-fe20-46d3-af4a-886ed1eab3f1)
+![3](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/83613a8e-95b9-44d3-834e-476297af186c)
 ![4](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/1e1d1ad3-65a6-499e-92db-b4a9034c20f2)
 ![5](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/0919e39f-f804-4511-a155-1376f3acbae8)
 ![6](https://github.com/TEAM-ITERVIEW/.github/assets/102040717/b4ba3b8e-0967-4e64-85b1-16a2050c4a0e)
